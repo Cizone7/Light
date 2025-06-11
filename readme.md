@@ -5,7 +5,6 @@
 
 **链接**: 
 [学习通云盘](https://pan-yz.cldisk.com/external/m/file/1046115469885538304)
-[百度云盘](https://pan.baidu.com/s/1fnLm8jCs9oisYAXA8OJxVQ?pwd=8tni)
 
 **游戏类型**: 剧情类角色扮演游戏
 
